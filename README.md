@@ -1,1 +1,0 @@
-# samikpal.github.io
